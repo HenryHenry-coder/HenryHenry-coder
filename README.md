@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HenryHenry-coder
-- 👀 I’m interested in ...Making the world a better place by faciliting deep space commerce.
+- 👀 I’m interested in ...Making the world a better place by facilitating deep space commerce.
 - 🌱 I’m currently learning ... Python Linux Scratch Cyber Security ....
 - 💞️ I’m looking to collaborate on ... Money making ventures 
 - 📫 How to reach me ... henrywise67@gmail.com 
